@@ -64,5 +64,9 @@ https://github.com/user-attachments/assets/626fbdd7-4ecc-4d30-b4af-1714e7e5f8ae
 https://github.com/user-attachments/assets/b1c07a8f-40f8-4f5d-b461-b8bc825ecd38
 
 
+## 垃圾AI宣传片
+
+
+https://github.com/user-attachments/assets/d6584b22-c976-4ef4-9850-5e2cf7357c58
 
 
