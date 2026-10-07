@@ -61,7 +61,12 @@ https://github.com/user-attachments/assets/626fbdd7-4ecc-4d30-b4af-1714e7e5f8ae
 
 
 
-https://github.com/user-attachments/assets/b1c07a8f-40f8-4f5d-b461-b8bc825ecd38
+[改变历史！我的世界独立开发者 RayT_RT开发统一所有mod加载器Forbric！从此mcmod只需一个版本！西方做不到系列！](https://www.bilibili.com/video/BV1a4aC6xEkB)
+
+
+https://github.com/user-attachments/assets/75fbd9d0-f280-4f69-8efc-5c82449f2f17
+
+
 
 
 ## 垃圾AI宣传片
