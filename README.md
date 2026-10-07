@@ -1,7 +1,6 @@
 # Forbric是啥
 一坨屎💩。
 
-## 网友的图片
 <img width="1666" height="944" alt="Image" src="https://github.com/user-attachments/assets/ea5f365e-8910-4ba4-a4cd-0e634f90d16e" />
 
 
